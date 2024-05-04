@@ -2,6 +2,7 @@
 One day, in the distant country of Elmiria, where magic was an integral part of everyday life, a crazy fantasy story broke out.
 
 In the quiet town of Lunnalia, located on the shores of a magical lake, there lived an ordinary guy named Adrian. He was an ordinary blacksmith, skilled in his craft, but his heart was drawn to adventure and magical powers. Adrian always dreamed of becoming a great wizard and going to dangerous lands full of mysteries and secrets.
+
 One day, while walking through the forest, Adrian came across an ancient magical hand that looked like an ordinary stone. But when he took it in his hands, something incredible happened. The hand came to life and began talking to Adrian. It turned out that it was the hand of a powerful demon named Zargon.
 
 Zargon told Adrian about an ancient prophecy that spoke of a great battle between light and darkness, where only a true wizard could save the world from a terrifying evil. Adrian was chosen to become this wizard and take responsibility for the fate of Elmyria.
@@ -17,5 +18,4 @@ But Adrian's story did not end there. He decided to use his new abilities and kn
 Hadrian became a famous and respected wizard, renowned for his wisdom and valor. He became a mentor to young wizards, helping them develop their abilities and find their destiny in the world of magic.
 
 Thus continued the crazy fantasy story of Adrian and his adventures in Elmyria. Everyone who heard his story was inspired by his dedication, strength and belief in justice.
-
 And so, the legend of the great wizard Adrian lived in the hearts of people and continued to inspire new generations, reminding them of the power of dreams and the opportunities that await those who believe in their destiny and are ready to follow it to the end.
